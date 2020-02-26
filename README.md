@@ -1,0 +1,1 @@
+# typicalui.dev
